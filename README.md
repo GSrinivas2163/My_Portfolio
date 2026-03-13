@@ -1,3 +1,3 @@
-Shivani Atkuri's Portfolio
+Srinivas Portfolio
 
 Can View at: 
